@@ -72,7 +72,7 @@ Bu politikayı zaman zaman güncelleyebiliriz. Önemli değişiklikler olması d
 
 Gizlilik politikamızla ilgili sorularınız için:
 
-**E-posta:** serdarkoc42@gmail.com
+**E-posta:** promptcrafter.app@gmail.com
 
 ---
 
